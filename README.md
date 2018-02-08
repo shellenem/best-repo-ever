@@ -1,2 +1,2 @@
 # best-repo-ever
-Learning new things is fun!!!
+Can we go home yet?
