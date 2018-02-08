@@ -1,2 +1,2 @@
 # best-repo-ever
-Learning new things is fun!!!
+Learning new things is NEVER fun!!!
